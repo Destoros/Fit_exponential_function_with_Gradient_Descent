@@ -1,0 +1,1 @@
+Documentaion inside the Find_Parameters_Exponential_Function_GD.pdf file
